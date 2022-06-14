@@ -1,0 +1,1 @@
+Ushbu dastur "Intellectual software technology" mchj tomonidan ishlab chiqarilgan.Dasturni ruxsatsiz tarqatish taqiqlanadi
